@@ -5,6 +5,7 @@ seoDescription: "Por nga të gjitha fetë që kam parë, si i qasen arnautët ë
 datePublished: Fri Jan 26 2024 19:55:27 GMT+0000 (Coordinated Universal Time)
 cuid: clrv2bqkq000008l783po0pui
 slug: lady-montagu-per-shqiptaret
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1706298988682/72424b99-1ee4-4f42-a5d2-1febe073bcb2.jpeg
 tags: lady-montagu, shqiptaret, perandoria-osmane
 
 ---
