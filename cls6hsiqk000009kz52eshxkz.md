@@ -57,3 +57,5 @@ Por egzistoj prandaj reflektoj
 E sipas Tij që mua më shembëlloi  
 Nuk mendoj që të egzistoj  
 Por egzistoj prandaj reflektoj.
+
+Frymëzuar nga një leksion i Ibrahim Kalin në universitetin Ibn Kaldun mbi perceptimin e shumë realiteteve në kontrast nga perceptimi i një realiteti që ofron islami. Rene Dekart me "Mendoj prandaj egzistoj" është frymëzues i botës së re ku njeriu zgjedh që realitetin t'ja japë vetë jetës, me marrveshjen shkakore se jeta nuk ka asnjë kuptim. Poezia është formë kundërpërgjigje jo ndaj tij por ndaj mendimit që ndjekim mbi kuptimin e jetës (multi realitetet), që rrënjët i ka tek shprehja e tij.
